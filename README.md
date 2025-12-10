@@ -1,5 +1,5 @@
 # Wallpapers
 
-ye
+~aesthetics~
 
-credits go to authors
+credits go to authors, all images remain property of their original owners.
